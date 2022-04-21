@@ -18,6 +18,6 @@ Also Check out awesome new video https://www.youtube.com/watch?v=6ISkPi_nVIA&t=3
 Python (Being amazing and fixing my issue's)\
 CeMrK (Hes just a sexy mf)\
 Abhi (My idol)\
-Final/GravityDev(nuking backdoors)
-Me also known as !AmANoot (copy, pasting, and getting ratted )
+Final/GravityDev(nuking backdoors)\
+Me also known as !AmANoot (copy, pasting, and getting ratted)
 
